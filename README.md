@@ -1,4 +1,4 @@
-hi my self arvind kumar kushwaha that salve india india india - 👋 Hi, I’m @kumararvind0705
+hi my self arvind kumar kushwaha that salve india india india - 👋 Hi, I’m arvindkushwaha
 - 👀 I’m interested in ...crickrt his my fevrate 
 - 🌱 I’m currently learning ...hydrabaad 
 - 💞️ I’m looking to collaborate on ...
